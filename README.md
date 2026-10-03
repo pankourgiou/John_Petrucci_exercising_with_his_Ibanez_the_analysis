@@ -1,0 +1,1 @@
+Download the .html and double click it and see a little analysis of John Petrucci's guitar exercise with his Ibanez. He is propably the biggest music influence for me so. Enjoy and don't forget John Petrucci plays the guitar a little bit and Ooops sun explodes!
